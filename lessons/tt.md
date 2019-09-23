@@ -1,0 +1,1 @@
+https://htmlacademy.ru/blog/academy/news/codeguide-why-what-and-how
